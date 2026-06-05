@@ -7,7 +7,7 @@ et des classiques de la littérature avec leur traduction française, phrase par
 
 Pour toute question, problème ou suggestion concernant l'application, contactez-nous :
 
-📧 **lemerourguillaume@gmail.com**
+📧 **germanreadsupport@gmail.com**
 
 Nous répondons généralement sous 48 heures.
 
