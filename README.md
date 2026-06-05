@@ -33,4 +33,4 @@ Consultez notre politique de confidentialité pour plus de détails.
 
 ---
 
-© 2026 Guillaume Le Mérour. Textes sources dans le domaine public.
+© 2026 GermandRead. Textes sources dans le domaine public.
